@@ -1,6 +1,6 @@
+![Professional Web Designer & WordPress Expert](https://media.licdn.com/dms/image/D5616AQGVIbaKsdHy-g/profile-displaybackgroundimage-shrink_350_1400/0/1711493485243?e=1720656000&v=beta&t=23CQqeJn8ZpJAvMD9rAHO7O90d2VOZItXsLmILvurUI)
 ### Hi there 👋, My name is Nurussafa
 #### Professional Web Designer & WordPress Expert
-![Professional Web Designer & WordPress Expert](https://media.licdn.com/dms/image/D5616AQGVIbaKsdHy-g/profile-displaybackgroundimage-shrink_350_1400/0/1711493485243?e=1720656000&v=beta&t=23CQqeJn8ZpJAvMD9rAHO7O90d2VOZItXsLmILvurUI)
 
 Hello, I’m Nurussafa, a seasoned Web Developer & WordPress specialist with a talent for creating compelling online experiences. Having worked in the field for 4 years, I'm passionate about turning creative concepts into websites that are both aesthetically pleasing and useful and make a lasting impact.
 
