@@ -1,10 +1,20 @@
 ![Professional Web Designer & WordPress Expert](https://media.licdn.com/dms/image/D5616AQGVIbaKsdHy-g/profile-displaybackgroundimage-shrink_350_1400/0/1711493485243?e=1720656000&v=beta&t=23CQqeJn8ZpJAvMD9rAHO7O90d2VOZItXsLmILvurUI)
 ### Hi there 👋, My name is Nurussafa
 #### Professional Web Designer & WordPress Expert
+About Me:
+I'm a passionate web developer with 3 years of experience, specializing in crafting user-centric websites using WordPress and cutting-edge technologies. I combine creativity with technical expertise to deliver exceptional results that exceed your expectations.
 
-Hello, I’m Nurussafa, a seasoned Web Developer & WordPress specialist with a talent for creating compelling online experiences. Having worked in the field for 4 years, I'm passionate about turning creative concepts into websites that are both aesthetically pleasing and useful and make a lasting impact.
+My Services:
+Custom WordPress development: Themes, plugins, and website builds tailored to your unique needs.
+E-commerce solutions: Build and optimize online stores using WooCommerce.
+Website maintenance and optimization: Keep your website running smoothly and performing at its best.
 
-I can help you to develop an innovative, smooth, and exceptional website for growing your company. I am a freelance web developer full-time and have developed over 650 websites throughout my 4 years at Fiverr. I have a lot of content clients. There, I am a highly regarded developer. I currently lead a team that consists of a back-end developer, a front-end web developer, and a graphics designer.
+My Approach:
+Transparent communication: I prioritize clear and consistent communication throughout the project.
+Client-focused solutions: I take the time to understand your vision and goals to deliver websites that drive results.
+Exceptional results: I am committed to exceeding your expectations and building a lasting partnership.
+Let's collaborate!
+Get in touch and let's discuss how I can elevate your online presence.
 
 For more information about your idea or business, send me an email nsafa1979@gmail.com
 
